@@ -6,7 +6,7 @@
 - 💞️ I’m looking to collaborate on many different areas, learning new things everyday...
 - 📫 How to reach me email - [suhas.ksv@gmail.com](mailto:suhas.ksv@gmail.com)
 
-- Studying Indian Institute of Technology Madras'28 BSc Electrical Enginnering in Electronic Systems
+- Studying Indian Institute of Technology Madras'28 BSc Electrical Enginnering in Electronic Systems and BTech Shanmugha Arts Science Technology and Research Academy Electronics and Communication Engineering
 - Connect with me on [LinkedIn](https://www.linkedin.com/in/suhas-k-3265891a7/)
 - Follow me on [Medium](https://medium.com/@quantumg1489)
 
