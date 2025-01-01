@@ -1,4 +1,4 @@
-# Happy New Year 2024
+# Happy New Year 2025
 
 - 👋 Hi, I’m @suhasksv
 - 👀 I’m interested in Go, Python, Rust, Web Development, Arduino Projects, Raspberry Pi etc...
